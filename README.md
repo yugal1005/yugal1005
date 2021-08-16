@@ -1,6 +1,6 @@
 Hi 👋, I'm
 Yugal Panchal
-a.k.a yugal1005. I'm a programmer and a hobbyist Vector Artist, 20 years old and have huge fascination towards Crypto...
+a.k.a yugal1005. I'm a programmer and a hobbyist Vector Artist and have huge fascination towards Crypto...
 <br>
 <br>
 <br>
