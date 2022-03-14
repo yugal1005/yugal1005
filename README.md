@@ -9,7 +9,7 @@ a.k.a yugal1005. I'm a programmer and a hobbyist Vector Artist and have huge fas
 
 Talking about Personal Stuffs:
 
-- 🛠 Currently working with C++ and Python.
+- 🛠 Currently working with Flutter and C++.
 - 👨🏻‍💻 looking to collaborate on projecs.
 - 💬 Hobbyist Graphic Designer and Vector Artist.
 - ⚡️ Interests in Stock Marketing.
